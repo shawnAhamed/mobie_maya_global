@@ -1,0 +1,1 @@
+# mobie_maya_global
